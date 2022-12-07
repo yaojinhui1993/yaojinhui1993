@@ -2,7 +2,7 @@
 
 
 
-- 🌱 I’m currently learning CS.
+- 🌱 I enjoy living, enjoy my life.
 
 
 
