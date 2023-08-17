@@ -2,7 +2,7 @@
 
 
 
-- 🌱 I enjoy living, enjoy my life.
+- 🌱 I revel in life's joys, cherishing each moment.
 
 
 
